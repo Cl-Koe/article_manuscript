@@ -1,2 +1,2 @@
 # Manuskript
-Autor: Claudia 
+Autor: Claudia Kögler
