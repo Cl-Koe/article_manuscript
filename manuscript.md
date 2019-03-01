@@ -1,2 +1,2 @@
-# Manuskript
+# Das beste Manuskript
 Autor: Claudia Kögler
